@@ -1,5 +1,5 @@
-![Image Alt](https://github.com/5eunju/5eunju/blob/1782694e234dfe4a4bc46c74d32bffb370b12113/6459ddb1-2f32-4c2e-ab47-c002040f2cdd.gif)
+![Image Alt](https://github.com/5eunju/5eunju/blob/286b5e7fcb9a35bb789e7f4331696ee4f1344da0/Kitbull%20(2019)%20-%20dir_%20Rosana%20Sullivan.gif)
 
 ___________
 
-![Image Alt](https://github.com/Seaeat-thesun/Seaeat-thesun/blob/99e66709353a6fc34b0e71e6901e5796396bdabd/Post%20by%20%40radioexe%20%C2%B7%208%20images.gif)
+![Image Alt](https://github.com/5eunju/5eunju/blob/3d05f3beaacab9bccd1002fcfe47b7fd31c68640/dd30b483-1a9d-43af-acfc-30862f4a55b2.gif)
