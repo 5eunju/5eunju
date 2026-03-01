@@ -1,4 +1,4 @@
-![Image Alt](https://github.com/Seaeat-thesun/Seaeat-thesun/blob/ac1f255457aa1ff22f50d06b0be97db07f15f6b8/Post%20by%20%40lovers-instead%20%C2%B7%205%20images.gif)
+![Image Alt](https://github.com/5eunju/5eunju/blob/1782694e234dfe4a4bc46c74d32bffb370b12113/6459ddb1-2f32-4c2e-ab47-c002040f2cdd.gif)
 
 ___________
 
